@@ -11,3 +11,6 @@
 2. Bien
 
 ***It can zoom in like a DSLR, and it can quickly snap low-light photos that would normally require a tripod and a lot of patience. It has every feature you can imagine, and then some. In short: The phone can take photos that other smartphones can only dream of.***
+
+    Importante: La gente piensa y esta a favor de huawei pase lo que paso en esta guerra comercial
+ 
