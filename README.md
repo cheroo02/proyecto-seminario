@@ -15,4 +15,5 @@
     Importante: La gente piensa y esta a favor de huawei pase lo que paso en esta guerra comercial
  
 
-**Negrita**
+**_Negrita y Cursiva_**
+_Cursiva_
